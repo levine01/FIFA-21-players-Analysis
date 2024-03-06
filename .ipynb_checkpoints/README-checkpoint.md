@@ -1,3 +1,3 @@
 # FIFA 21 PLAYERS ANALYSIS
 
-![photo](https://www.pexels.com/photo/three-men-playing-soccer-274422/)
+![photo](https://images.pexels.com/photos/3148452/pexels-photo-3148452.jpeg?auto=compress&cs=tinysrgb&w=600)
